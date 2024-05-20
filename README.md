@@ -1,1 +1,1 @@
-# paulgabriel.dev
+# https://paulgabriel.dev
